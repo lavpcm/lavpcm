@@ -4,7 +4,7 @@
 
 
 ## about me 🎬 ୭ ˚. ᵎᵎ
-Hi! I'm Lavinia, a 19 year old student of **administration with a focus on technology** at Inteli College. I grew up in the countryside of São Paulo, and I've always loved learning new stuff about the tech area and i have a passion for people management. When it comes to programming, I can say that my skills are more fundamental and I am still learning the basics. Get to know be better with:
+Hi! I'm Lavinia, a 19 year old student of **administration with a focus on technology** at Inteli College. I grew up in the countryside of São Paulo, and I've always loved learning new stuff about the tech area and i have a passion for people management. When it comes to programming, I can say that my skills are more fundamental and I am still learning the basics. Get to know me better with:
 
 [🎧 my spotify playlist](https://open.spotify.com/playlist/61zXbw0Ut9Aoy9ub6zNWD0)
 
