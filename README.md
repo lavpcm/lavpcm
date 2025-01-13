@@ -4,7 +4,7 @@
 
 
 ## about me 🎬 ୭ ˚. ᵎᵎ
-Hi! I'm Lavinia, a 19 year old student of **administration with a focus on technology** at Inteli College. I grew up in the countryside of São Paulo, and I've always loved learning new stuff about the tech area and i have a passion for people management. When it comes to programming, I can say that my skills are more fundamental and I am still learning the basics. Get to know me better with:
+Hi! I'm Lavinia, a 19 year old student of **administration with a focus on technology** at Inteli College. I grew up in the countryside of São Paulo, I've always loved learning new stuff about the tech area and i have a passion for people management. When it comes to programming, I can say that my skills are more fundamental and I am still learning the basics. You can get to know me better with:
 
 [🎧 my spotify playlist](https://open.spotify.com/playlist/61zXbw0Ut9Aoy9ub6zNWD0)
 
@@ -19,7 +19,7 @@ Hi! I'm Lavinia, a 19 year old student of **administration with a focus on techn
 - 🌟 lead and *help other people* to achieve their goals;
 
 ## peculiarity ❓ ༘ ˚⋆ !
-I have many **strange socks**, with various different themes 🧦 I’m not exactly sure when this ‘hobby’ started, but collecting them has become a peculiar passion. Even my closest friends have been affected; I gift socks to the people I love whenever I have the chance. Socks with cats, from movies and TV shows, with food prints, and my favorites, the basketball team socks: I have a considerable amount of them for someone who has never watched a single NBA game 😅🏀
+I have many **strange socks**, with various different themes 🧦 I’m not exactly sure when this ‘hobby’ started, but collecting them has become a peculiar passion. Even my closest friends have been affected; I gift socks to the people I love whenever I have the chance. Socks with cats, from movies and TV shows, with food prints and, my favorites, the basketball team socks: I have a considerable amount of them for someone who has never watched a single NBA game 😅🏀
 
 ## knowledge 📚 ⋆ ✧. ୭  
 - 💻 Python (basic)
